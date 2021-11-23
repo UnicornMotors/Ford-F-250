@@ -4,8 +4,6 @@ sch:
 - https://www.youtube.com/results?search_query=1985+Ford+F-250+axle+spindle+nut
 
 # Looks Exactly like mine!
-[1979 F250 rear brakes](https://youtu.be/lP9q2wzYUt8)
-
 # Dana 60 - 1 Ton Differential
 [Rear Full-floating D60 Hub Seal Replacement](https://youtu.be/8Zqnmj343zY)
 
@@ -20,6 +18,9 @@ Mike’s Mischief
 1 month ago
 2 9/16”
 "
+
+## similar:
+[1979 F250 rear brakes](https://youtu.be/lP9q2wzYUt8)
 
 
 # Sterling
