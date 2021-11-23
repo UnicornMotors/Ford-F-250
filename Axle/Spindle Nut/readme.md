@@ -1,4 +1,5 @@
 sch:
+- https://www.google.com/search?q=1986+ford+F-250+IDI+rear+axle+nut
 - https://www.youtube.com/results?search_query=Ford+F-250+axle+spindle+nut
 - https://www.youtube.com/results?search_query=Ford+F-250+spindle+replacement
 
