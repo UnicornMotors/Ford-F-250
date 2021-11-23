@@ -2,6 +2,9 @@ sch:
 - https://www.youtube.com/results?search_query=Ford+F-250+axle+spindle+nut
 - https://www.youtube.com/results?search_query=Ford+F-250+spindle+replacement
 
+# Discussion:
+https://www.ford-trucks.com/forums/846089-axle-nut-size-on-86-f350.html
+
 # Guide:
 [How to properly install and torque an SKF spindle nut](https://youtu.be/5_JbwziCmts)
 
