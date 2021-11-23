@@ -6,12 +6,21 @@ sch:
 # Looks Exactly like mine!
 [1979 F250 rear brakes](https://youtu.be/lP9q2wzYUt8)
 
-[Rear drum brake replacement 1980 Ford F-350 DRW Dana 60](https://youtu.be/unsbovk-pYU)
-
-It looks like an 8 sided Hexagonal nut?
-
 # Dana 60 - 1 Ton Differential
 [Rear Full-floating D60 Hub Seal Replacement](https://youtu.be/8Zqnmj343zY)
+
+[Rear drum brake replacement 1980 Ford F-350 DRW Dana 60](https://youtu.be/unsbovk-pYU)
+
+## Comment:
+"Melissa Prentice
+1 month ago
+What size socket was that big one
+
+Mike’s Mischief
+1 month ago
+2 9/16”
+"
+
 
 # Sterling
 Similar but different.
