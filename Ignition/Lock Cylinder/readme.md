@@ -5,3 +5,5 @@
 [92-96 Ford F150 Steering Column Ignition Cylinder rebuild Part 1](https://youtu.be/TvYEZEh28OU)
 
 [92-96 Ford F150 Steering Column Ignition Cylinder rebuild part 2](https://youtu.be/lgmZ8pf23V8)
+
+[Ford Quick Tips: #25 Ford Ignition Lock Cylinder Removal](https://youtu.be/FfmWOjTaUTc)
