@@ -1,3 +1,6 @@
+# 1990
+[Ignition Actuator Installation Trick 1990 Ford Bronco F150](https://youtu.be/5QsPdyfpIIc)
+
 # 1989
 [Ignition Actuator Replacement (easy) - Most Detailed How To Video - '87-91 F-150](https://youtu.be/5yO103OzDDY)
 
