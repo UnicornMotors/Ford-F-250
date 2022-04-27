@@ -1,3 +1,5 @@
+[How to change a ford ignition actuator 87’-91](https://youtu.be/GJ_uyECL4F4)
+
 # 1990
 [Ignition Actuator Installation Trick 1990 Ford Bronco F150](https://youtu.be/5QsPdyfpIIc)
 
