@@ -1,4 +1,9 @@
 # Discuss:
+## Forum
+https://www.fordforumsonline.com/threads/1988-7-3-idi-starter-wiring-problems.46949/
+
+
+## 2carpros.com
 - https://www.2carpros.com/questions/ford-f-250-1991-ford-f250-starter-is-no-crank-condition
 - https://www.2carpros.com/questions/ford-f-250-1993-ford-f250-engine-wont-crank
 - https://www.2carpros.com/questions/ford-f-250-1991-ford-f250-cant-figure-it-out
