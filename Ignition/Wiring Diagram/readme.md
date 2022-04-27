@@ -1,4 +1,5 @@
 sch:
+- https://www.google.com/search?q=1989+ford+f-250+diesel+starting+circuit
 - https://www.google.com/search?q=1989+ford+f-150+starting+circuit
 - https://www.google.com/search?q=1989+ford+f-250+starting+circuit
 
